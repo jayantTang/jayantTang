@@ -1,1 +1,1 @@
-Jayant · 香港 · 在写 [DSH_Mobile](https://github.com/jayantTang/DSH_Mobile)
+Jayant · 在写 [DSH_Mobile](https://github.com/jayantTang/DSH_Mobile)
